@@ -1,0 +1,1 @@
+Geenerative AI practice
